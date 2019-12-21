@@ -1,2 +1,0 @@
-# Topik-referensi
-safelinktopikreferensi
